@@ -1,0 +1,1 @@
+# tehnolife.com.kz
